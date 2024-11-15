@@ -6,3 +6,5 @@
 [my atabook](https://bloodbath.atabook.org)
 
 [my pronouns.cc](https://pronouns.cc/@discharge)
+
+[pony.town info](https://text.is/smile-hd)
