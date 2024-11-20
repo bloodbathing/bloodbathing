@@ -1,2 +1,2 @@
 ## my rentry
-look at it https://rentry.co/gayfightclub
+gaze upon these wretched texts https://rentry.co/gayfightclub
