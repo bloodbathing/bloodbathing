@@ -1,2 +1,2 @@
 ## my rentry
-gaze upon these wretched texts https://rentry.co/gayfightclub
+gaze your weary eyes upon these wretched texts and garner information regarding myself on a rather personal scale https://rentry.co/gayfightclub
