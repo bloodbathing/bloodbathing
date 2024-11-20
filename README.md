@@ -1,2 +1,2 @@
-## WORK IN PROGRESS
-![](https://komarev.com/ghpvc/?username=bloodbathing&color=red&style=plastic&label=idiots)
+## my rentry
+look at it https://rentry.co/gayfightclub
