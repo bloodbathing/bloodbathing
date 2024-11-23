@@ -1,3 +1,3 @@
-mi rentry https://rentry.co/eatyourgirlfriend
+[my rentry](https://rentry.co/eatyourgirlfriend)
 
-![](https://komarev.com/ghpvc/?username=bloodbathing&color=yellowgreen&style=plastic&label=assholes)
+![](https://komarev.com/ghpvc/?username=bloodbathing&color=223C69&style=plastic&label=assholes)
