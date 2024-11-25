@@ -1,6 +1,6 @@
 [my rentry](https://rentry.co/eatyourgirlfriend)
 
-![](https://komarev.com/ghpvc/?username=bloodbathing&color=223C69&style=plastic&label=silly-people)
+![](https://komarev.com/ghpvc/?username=bloodbathing&color=223C69&style=plastic&label=silly_people)
 
 pt info rq
 1. sv means semi-verbal and nv means non-verbal, i have either of these in my name from time to time
