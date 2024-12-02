@@ -8,5 +8,5 @@
       - i appreciate crowns/compliments in whispers, i see them there easier!!!
 3. i do not respect tt/td/dnt/ whatever. if i see it in your name, i will treat you as if it doesn't exist. take a break from the internet, work on your mental health.
 4. c+h isn't welcome for complete strangers, you could at the very least interact and talk to me first.
-5. my internet is ass so if i poof in the middle of a conversation, blame that.
+5. my internet is ass, so if i poof in the middle of a conversation, blame that.
 ![](https://files.catbox.moe/d7p6fx.gif)
