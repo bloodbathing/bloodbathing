@@ -10,4 +10,5 @@
 4. c+h isn't welcome for complete strangers, you could at the very least interact and talk to me first.
 5. my internet is ass, so if i poof in the middle of a conversation, blame that.
 6. to eyestrain ponies: kill yourselves!
+
 ![](https://files.catbox.moe/d7p6fx.gif)
