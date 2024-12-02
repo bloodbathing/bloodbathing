@@ -1,10 +1,3 @@
-![](https://files.catbox.moe/d7p6fx.gif)
-# links!
-
-rentry is a wip lolz...
-
-[my pronouns.cc](https://pronouns.cc/@FIGHTCLUB)
-# pony town info!
 
 1. i'm not online often, playing pt 24/7 isn't exactly my favorite thing to do.
 2. i'm usually active whenever i am playing, so feel free to interact with me.
