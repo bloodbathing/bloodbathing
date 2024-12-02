@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=bloodbathing&color=yellow&style=plastic&label=stalkers)
+
 ![](https://files.catbox.moe/d7p6fx.gif)
 # ponytown info! <3
 1. i'm not online often, playing pt 24/7 isn't exactly my favorite thing to do.
