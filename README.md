@@ -1,4 +1,4 @@
-## my pony.town info ![](https://files.catbox.moe/r5ffgh.webp)
+## my pony.town info ![baby blue from reverse:1999 go play the game right now it is peak](https://files.catbox.moe/r5ffgh.webp)
 1. i am on safe server because i am minor and adults are scary
 2. mean people who only cause drama and problems log off now
 3. tt/td on this site isn't real and you're making a mockery of those who don't like touch irl
